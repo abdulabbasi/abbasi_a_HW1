@@ -1,1 +1,3 @@
-# abbasi_a_HW1
+# this is my bio information for team solo
+
+team members, where you're from etc...

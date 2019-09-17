@@ -1,3 +1,3 @@
 # this is my bio information for team solo
 
-team members, where you're from etc...
+tgfgtjghugug :(

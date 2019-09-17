@@ -1,1 +1,3 @@
-# abbasi_a_HW1
+# this is my bio information for team solo
+
+tgfgtjghugug :(
